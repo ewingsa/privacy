@@ -1,1 +1,1 @@
-We do not store your data, period.
+We do not store nor share your data, period.
